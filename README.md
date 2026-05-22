@@ -1,0 +1,1 @@
+# Atividade-de-Pesquisa-e-Projeto-Arquitetura-e-Aplica-es-em-Internet-das-Coisas-IoT-
